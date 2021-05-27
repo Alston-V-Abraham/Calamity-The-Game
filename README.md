@@ -8,6 +8,8 @@ Battle your way through the ranks of many invading aliens and fufill as many que
 ## About
 Check my-all-new Game purely named-Calamity!
 
+## Redirect
+Find the tool online here - https://calamity-rpg.gq/
 
 …_____………___………_…………………___……___……___…_____……_____…__………__
 /……__…\…/…_…\…|…|……………/…_…\…|……\/……||_………_||_………_|\…\…/…/
