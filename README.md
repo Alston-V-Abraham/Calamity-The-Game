@@ -2,6 +2,8 @@
 Ever faced a Calamity?
 No?
 No problem, I got you covered!
+Battle your way through the ranks of many invading aliens and fufill as many quests as you can to save the world in an alien invasion.
+
 
 ## About
 Check my-all-new Game purely named-Calamity!
